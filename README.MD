@@ -1,1 +1,0 @@
-![alt](https://memepedia.ru/wp-content/uploads/2018/09/bj37uo.png)
